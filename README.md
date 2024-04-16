@@ -2,6 +2,8 @@
 
 **Apps for Windows, Martine OS, Android & Linux**
 
+[Join FilmStadt today](https:/filmstadt.net)
+
 **FilmStadt** is a modern versatile platform that brings together people from all walks of life, offering a rich and engaging online experience. Whether you're a film enthusiast, a creative individual, or simply someone looking for a dynamic social network, **FilmStadt** has something for everyone.
 
 Discover a world of possibilities with **FilmStadt**. Share and watch videos, explore captivating posts on **PostStadt**, watch short viral videos on **ShortStadt**, connect with others through **ChatStadt**, engage in Q&A sessions on **AskStadt**, quizzes and polls on **QuizStadt**, music from various genres on **MusicStadt**, write and read articles on **BlogStadt**, and indulge in online gaming on **GameStadt**. Our all-inclusive platform combines the best features of a social network, video-sharing platform, photo and post gallery, chat application, Q&A forum, quizzes and polls, articles, and gaming portal.
