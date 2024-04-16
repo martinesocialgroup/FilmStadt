@@ -2,7 +2,7 @@
 
 **Apps for Windows, Martine OS, Android & Linux**
 
-[Join FilmStadt today](https:/filmstadt.net)
+[Join FilmStadt today](https://filmstadt.net)
 
 **FilmStadt** is a modern versatile platform that brings together people from all walks of life, offering a rich and engaging online experience. Whether you're a film enthusiast, a creative individual, or simply someone looking for a dynamic social network, **FilmStadt** has something for everyone.
 
